@@ -1,5 +1,5 @@
 👤 Nombre:
-Samuel Sebastián González Ammani
+Samuel Sebastián González Mamani
 
 🎓 Estudio:
 Ingeniería de Sistemas
